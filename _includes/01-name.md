@@ -1,2 +1,2 @@
-# Sanku Rushyendher Reddy
+# Rushyendher Reddy
 ###### Senior Software Engineer
